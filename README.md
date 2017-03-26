@@ -1,2 +1,3 @@
-# newcomer-guide
-Fresh of the boat in London, this way please
+# Newcomer to London Guide
+## From the plane to your first job
+
